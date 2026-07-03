@@ -2,13 +2,14 @@ I write short science communication pieces on agriculture, sustainability, envir
 
 ### Selected science communication articles
 
-- **El Niño, Oil Palm, and Why Malaysian Oil Palm Farmers Should Pay Attention**  
+- **Oh! My Palm #01: El Niño, Oil Palm, and Why Malaysian Oil Palm Farmers Should Pay Attention**  
   A short explainer on how El Niño may affect rainfall, haze risk, and oil palm production in Southeast Asia.  
   [[Read article]](https://lnkd.in/gpAVfjCJ)
 
-- **Is My Oil Palm Really a “Male Tree”? Understanding “Pokok Jantan”, Flowering, and Seedling Choices**  
-  A practical introduction to oil palm flowering, the “pokok jantan” myth, and why seedling source matters for smallholders.  
-  _Draft / upcoming_
+- **Oh! My Palm #02: Is It Really "Pokok Jantan"?**  
+Why some oil palm trees keep producing male inflorescences and why cutting them down may not always be the right answer.  
+  [[Read article]](https://substack.com/@youyuan1/note/p-204795818?utm_source=notes-share-action&r=8oq6ho)
+  [[文章链接]](https://open.substack.com/pub/youyuan1/p/oh-my-palm-02-pokok-jantan?r=8oq6ho&utm_campaign=post-expanded-share&utm_medium=web)
 
 - **Why Smallholder Farmers Do Not Always Adopt “Better” Practices**  
   A reflection on farmer decision-making, access to support, labour constraints, and market incentives.  
