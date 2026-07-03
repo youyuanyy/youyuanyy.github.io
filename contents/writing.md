@@ -8,7 +8,7 @@ I write short science communication pieces on agriculture, sustainability, envir
 
 - **Oh! My Palm #02: Is It Really "Pokok Jantan"?**  
 Why some oil palm trees keep producing male inflorescences and why cutting them down may not always be the right answer.  
-  [[Read article]](https://substack.com/@youyuan1/note/p-204795818?utm_source=notes-share-action&r=8oq6ho)
+  [[Read article]](https://open.substack.com/pub/youyuan1/p/oh-my-palm-02-is-it-really-pokok?r=8oq6ho&utm_campaign=post-expanded-share&utm_medium=post%20viewer)
   [[文章链接]](https://open.substack.com/pub/youyuan1/p/oh-my-palm-02-pokok-jantan?r=8oq6ho&utm_campaign=post-expanded-share&utm_medium=web)
 
 - **Why Smallholder Farmers Do Not Always Adopt “Better” Practices**  
